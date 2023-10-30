@@ -1,1 +1,1 @@
-# bogdanandrei10-ghithub.ro
+# bogdanandrei10.ghithub.io
